@@ -1,7 +1,3 @@
 Budget-Hotel
 ============
-
-hi :)
-Seij pangit 
-harley gay
-
+PINOST KO N YUNG BASIC LAYOUT NATIN YEAHHHH
